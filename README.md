@@ -32,7 +32,7 @@ Busco desafios e oportunidades para crescer profissionalmente, contribuindo com 
 
 ## Contato
 
-📫 E-mail: abraao.email@example.com  
-🔗 [LinkedIn](https://linkedin.com/in/abraao-ulhoa)  
+📫 E-mail: abraaoulhoa@gmail.com  
+🔗 [LinkedIn](www.linkedin.com/in/abraaoulhoa)  
 
 ---
