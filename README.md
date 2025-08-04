@@ -1,4 +1,4 @@
-# 🎉 Olá, eu sou o Abraão Ulhoa! 👋😄
+# Olá, eu sou o Abraão Ulhoa! 👋😄
 
 ## Sobre mim
 
